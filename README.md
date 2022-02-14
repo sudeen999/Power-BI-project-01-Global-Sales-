@@ -1,1 +1,0 @@
-# Power-BI-project-01-Global-Sales-
